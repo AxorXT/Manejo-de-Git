@@ -1,5 +1,9 @@
 "CODIGO DE CONDUCTA" 
 
-hola soy octavio fui al banco:
+Hola soy Axor este es un codigo de conducta:
 
-- sin gorritos
+- No me gustaria qu el profe me borrara todo
+
+- Poner Comentarios
+
+- No sean vagos y hagan un desmadre
