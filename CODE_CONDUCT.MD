@@ -7,3 +7,9 @@ Hola soy Axor este es un codigo de conducta:
 - Poner Comentarios
 
 - No sean vagos y hagan un desmadre
+
+3jfegñl
+eñrlh
+hrh
+rhr
+h
